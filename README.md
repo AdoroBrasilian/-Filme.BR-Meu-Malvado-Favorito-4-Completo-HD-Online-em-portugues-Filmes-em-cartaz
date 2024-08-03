@@ -12,7 +12,7 @@ Meu Malvado Favorito 4 Filme Completo. Meu Malvado Favorito 4 filme 2024 HD comp
 
 ## Assistir>>  Meu Malvado Favorito 4 Filme Completo online grátis Dublado!
 
-### ⭐✔🎬assistir HD 👉   <a href="https://t.co/6oPXC0WRPc" rel="nofollow">Meu Malvado Favorito 4 Filme  2024 em portugues</p>
+### ⭐✔🎬assistir HD 👉   <a href="https://cinesecure.com/pt/movie/519182/despicableme4" rel="nofollow">Meu Malvado Favorito 4 Filme  2024 em portugues</p>
 
 
 Sinopse
